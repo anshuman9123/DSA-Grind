@@ -1,0 +1,1 @@
+learned revised pattern
